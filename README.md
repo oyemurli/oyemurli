@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @oyemurli
+- 👀 I’m Web developer
+- 🌱 I’m currently learning web development and and making websites for my business 
+- 📫 How to reach me:-
+- Email - murlig046@gmail.com
+- Phone no - 9956120738
